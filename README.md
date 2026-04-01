@@ -1,2 +1,0 @@
-# Portfolio
-Johana Puerta portfolio
